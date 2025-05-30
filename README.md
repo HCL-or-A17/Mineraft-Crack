@@ -10,3 +10,8 @@ Step-4
 Opem MCenter 5.0 and click inject (the unlock full game should be done and you should be able to sign in)
 Step-5 if u want to nigger
 Launch plamislauncher for xtra stuff
+
+
+
+
+THE M CENTER IS MODED BY ME SO IF IT HAS ANY PROBLEMS GO FUCK YOURSELF
