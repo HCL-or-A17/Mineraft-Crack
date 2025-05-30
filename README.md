@@ -1,3 +1,4 @@
+DOWNLOAD ALL THE FILES .EXE WALI SARI THE SARI FIRST 
 # Mineraft-Crack
 Step-1
 install Minecraft Launcher from Microsoft Store 
